@@ -1,2 +1,2 @@
 # logicaProgramacao
-Conteúdos DetalhestrabralhadoeDetalhestrabralhadoemsDetalhestrabralhadoeDetalhestrabralhadoemsala
+Conteúdos trabalhadose em sala -  1° informátic
